@@ -2,7 +2,7 @@
 - 👀 Tenho interesse em projetos na área de Q&A 
 - 🌱 Estou a cursar atualmente um bootcamp de Q&A, pela TripleTen e procuro me aprofundar nisso
 - 💞️Sou apaixonada por Gestão de Projectos 
-- 📫 [ericanecassy@gmail](https://www.linkedin.com/in/erica-dos-santos-47a380132/)
+- 📫 https://www.linkedin.com/in/erica-dos-santos-47a380132/
 
 
 <!---
